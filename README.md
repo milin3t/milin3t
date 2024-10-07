@@ -49,5 +49,5 @@
 
 - - -
 ### ✉️ Contacts
-- **IG** : www.instagram.com/milin3t
+- **IG** : www.instagram.com/rninjunseong
 - **E-Mail** : minjunseong@naver.com
